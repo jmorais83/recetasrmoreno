@@ -1,6 +1,7 @@
--- tortilla --
+-- tortilla con chorizo --
 Picamos la cebolla en juliana fina del mismo tamaño. En una sartén amplia, vertemos aceite de oliva virgen extra y calentamos.
 Añadimos la cebolla, salpimentamos al gusto, y dejamos que poche todo junto a fuego medio 15 minutos.
+Le añadimos chorizo
 Una vez se ha pochada toda la cebolla, sin que se queme, la sacamos y la ponemos en un bol. Podéis ayudaros de una espumadera y un colador para evitar añadir más aceite a la tortilla. Reservamos.
 Batimos los huevos y los salamos ligeramente (una pizca bastará). Añadimos la cebolla pochada y mezclamos muy bien.
 Calentamos una sartén antiadherente a fuego medio y agregamos unas gotas de aceite de oliva virgen extra.
